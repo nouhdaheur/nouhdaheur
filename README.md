@@ -24,3 +24,4 @@ https://www.credly.com/badges/55ec0f7e-00b9-4f80-8a97-36af5abe36b0/whatsapp
 
 
 * 🔐 **HP LIFE:** Introduction de sensibilisation à la cybersécurité *(June 2026)*
+https://www.life-global.org/certificate/a3c7c80e-ca0c-45e9-8720-01220bb7860f
